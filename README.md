@@ -1,0 +1,2 @@
+# Tricou
+Tricou foarte bun
